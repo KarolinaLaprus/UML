@@ -1,1 +1,1 @@
-# Diagramy-przypadk-w-u-ycia
+Og,olny opis mojego githuba
