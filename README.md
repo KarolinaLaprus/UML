@@ -1,1 +1,1 @@
-Og,olny opis mojego githuba
+Ogolny opis mojego githuba
