@@ -1,1 +1,1 @@
-Ogolny opis mojego githuba
+Portfolio- przykładowe diagramy
